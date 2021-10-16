@@ -1,0 +1,1 @@
+# leture-6_group-2
